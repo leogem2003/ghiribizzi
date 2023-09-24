@@ -35,7 +35,7 @@ Perle nascoste: When They Come for Me, Waiting for The End
 
 
 ### Drones
-Artista: Muse, Genere: Vari, Anno: 2016
+Artista: Muse, Genere: Vari, Anno: 2016 <br>
 Uno degli ultimi album dei Muse che rappresenta un avanzamento della band a livello artistico e sonoro.
 La band riprende il filone "complottista" che ha caratterizzato la prima fase della sua produzione,
 ma con una qualità sonora e compositiva inedita. La voce di Mattew Bellamy mette a dura prova
