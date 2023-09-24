@@ -14,7 +14,7 @@ In questa sezione si propongono brani "leggeri" ma che presentano già elementi 
 In particolar modo, si introducono sonorità metal e vocalizzazioni estreme a cui il pubblico generale non è abituato.
 
 ### Meteora
-Artista: Linkin Park, Genere: Nu Metal - Rap Metal, Anno: 2003
+Artista: Linkin Park, Genere: Nu Metal - Rap Metal, Anno: 2003 <br>
 Uno degli album più amati dei Linkin Park, apprezzato per la sua spontaneità e la struttura coerente e concisa.
 I brani sono brevi e vicini a sonorità mainstream, tuttavia sono presenti elementi metal come riff distorti e scream vocali.
 
