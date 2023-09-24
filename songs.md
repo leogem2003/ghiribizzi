@@ -18,19 +18,19 @@ Artista: Linkin Park, Genere: Nu Metal - Rap Metal, Anno: 2003 <br>
 Uno degli album più amati dei Linkin Park, apprezzato per la sua spontaneità e la struttura coerente e concisa.
 I brani sono brevi e vicini a sonorità mainstream, tuttavia sono presenti elementi metal come riff distorti e scream vocali.
 
-Metal: Sì, Black Metal: No, Progressive: No, Brani lunghi: No, Musica sperimentale: No, Concept: No
+Metal: Sì, Black Metal: No, Progressive: No, Brani lunghi: No, Musica sperimentale: No, Concept: No <br>
 Perle nascoste: Easier to Run
 
 
 ### A Thousand Suns
-Artista: Linkin Park, Genere: Vari, Anno: 2010
+Artista: Linkin Park, Genere: Vari, Anno: 2010 <br>
 Uno degli album più controversi e sorprendenti della scena metal post 2000.
 Un inaspettato concept in cui la band si distacca da stereotipi e metal mainstram.
 E' l'unico album dei LP definibile "sperimentale" ed offre all'ascoltatore sonorità oniriche
 nell'opprimente atmosfera di un mondo sotto la minaccia nucleare.
 Metal, pop, rap, musica elettronica, folk, una mescolanza di generi molto rara nella scena rock mainstream.
 
-Metal: Sì, Black Metal: No, Progressive: Sì, Brani Lunghi: No, Musica sperimentale: Sì, Concept: Sì
+Metal: Sì, Black Metal: No, Progressive: Sì, Brani Lunghi: No, Musica sperimentale: Sì, Concept: Sì <br>
 Perle nascoste: When They Come for Me, Waiting for The End
 
 
@@ -41,8 +41,8 @@ La band riprende il filone "complottista" che ha caratterizzato la prima fase de
 ma con una qualità sonora e compositiva inedita. La voce di Mattew Bellamy mette a dura prova
 ogni preconcetto sulla voce maschile e può risultare sgradevole, trattasi però di un fatto prettamente personale.
 E' il primo album di questa lista ad impiegare largamente gli accordi diminuiti, molto usati nella musica classica e nel jazz ma scarsamente impiegati nel pop,
-una volta che ci si abitua a sentirli diventano come il sale: senza di loro tutto sembra più insipido.
-Metal: Sì, Black Metal: No, Progressive: Sì, Brani lunghi: Sì, Musica sperimentale: Sì, Concept: Sì
+una volta che ci si abitua a sentirli diventano come il sale: senza di loro tutto sembra più insipido. <br>
+Metal: Sì, Black Metal: No, Progressive: Sì, Brani lunghi: Sì, Musica sperimentale: Sì, Concept: Sì <br>
 Perle nascoste: Reapers
 
 
