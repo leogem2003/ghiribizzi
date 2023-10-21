@@ -41,8 +41,34 @@ La band riprende il filone "complottista" che ha caratterizzato la prima fase de
 ma con una qualità sonora e compositiva inedita. La voce di Mattew Bellamy mette a dura prova
 ogni preconcetto sulla voce maschile e può risultare sgradevole, trattasi però di un fatto prettamente personale.
 E' il primo album di questa lista ad impiegare largamente gli accordi diminuiti, molto usati nella musica classica e nel jazz ma scarsamente impiegati nel pop,
-una volta che ci si abitua a sentirli diventano come il sale: senza di loro tutto sembra più insipido. <br>
+una volta che ci si abitua a sentirli diventano come il sale: senza di loro tutto sembra più insipido.
+
 Metal: Sì, Black Metal: No, Progressive: Sì, Brani lunghi: Sì, Musica sperimentale: Sì, Concept: Sì <br>
 Perle nascoste: Reapers
+
+
+
+
+## Livello 1
+### Origin of Symmetry
+Artista: Muse, Genere: rock elettronico, Anno: 2003 <br>
+Se hai detestato la voce di Bellamy, passa oltre. Considerato l'opera somma dei Muse nonché uno dei migliori album rock di sempre, questo disco è diventato a tutti gli effetti un cult. Protagonisti assoluti sono i riff di chitarra iper-distorta e le vocalizzazioni estreme (acute) del cantante. Un viaggio distopico nel mondo della musica che mette a dura prova i canoni estetici di un genere troppo spesso asfittico e autoreferenziale trascinando l'ascoltatore in una dimensione oscura fatta di sonorità graffianti e stridenti.
+
+Metal: no, Black Metal: No, Progressive: No, Brani lunghi: no, Musica sperimentale: Sì, Concept: Sì <br>
+Perle nascoste: Citizen Erased
+
+### Aphelion
+Artista: Leprous, Genere: progressive, Anno: 2021 <br>
+Noti come i "papaveri alti del prog", i Leprous sono un gruppo Norvegese tra i più promettenti del genere e non tradiscono le aspettative con questo album, che sorprende per la freschezza degli arrangiamenti eseguiti con una sensibilità più vicina al pop che al metal. Le melodie sono studiate con un approccio armonico da compositore classico e il contributo di un vero complesso di archi prende il posto delle stantie tastiere prog. Un tocco di elettronica rende il tutto moderno e alla mano, cosa non sempre scontata negli ultimi risvolti del genere. Ciò non significa affatto che i pezzi siano banali, anzi gli arrangiamenti atonali, i tempi dispari e i cambi repentini rendono ogni brano ricco di inventiva e unico.
+
+Metal: Sì, Black Metal: No, Progressive: Sì, Brani lunghi: no, Musica sperimentale: Sì, Concept: No <br>
+Perle nascoste: Nighttime Disguise
+
+
+### Borders
+Artista: Kalandra, Genere: aambient, Anno: 2022 <br>
+Formato da giovani promesse della musica, Kalandra è un complesso di Norvegesi naturalizzati inglesi che opera nel florido ambito della musica folk scandinava. Tuttavia c'è una differenza rispetto ad altre proposte del genere, ovvero la disillusione verso un mondo che, per quanto affascinante, non offre reali prospettive (da qui l'espatrio in Inghilterra). Rimane un sentimento disilluso di attrazione perso il sublime, nel senso romantico del termine, e un approccio folk negli arrangiamenti. Tuttavia, non ci si muove nel solco già tracciato innumerevoli volte che vuole brani popolati da mitologia norrena, politeismo e sonorità che suonino "antiche", ma anzi si mette in discussione la tradizione per risolvere la tensione verso le proprie origini. I brani sono minimali, evocativi e evanescenti, privi di frenesia ma pieni di vitalità. Protagonista assoluta è la voce che viene elevata al grado di vero e proprio strumento musicale da sfruttare in tutti i suoi aspetti.
+
+Metal: no, Black Metal: No, Progressive: No, Brani lunghi: No, Musica sperimentale: Sì, Concept: No <br>
 
 
